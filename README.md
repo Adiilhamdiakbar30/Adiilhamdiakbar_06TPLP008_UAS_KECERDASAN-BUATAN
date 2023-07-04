@@ -1,0 +1,1 @@
+# Adiilhamdiakbar_06TPLP008_UAS_KECERDASAN-BUATAN
